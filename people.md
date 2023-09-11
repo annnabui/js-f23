@@ -9,7 +9,7 @@
 **Students**
 
 - Shravani Bagawde
-- Anna Bui
+- Anna Bui (she/her) is a CD Junior @ Parsons whose interest lies in the intersectionality of art/design, socio-political science, and the natural science. She likes to knit and read in her free time. 
 - Ivy Chen
 - Sizhen Chen
 - Yuntong Chen
